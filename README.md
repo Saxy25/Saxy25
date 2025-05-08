@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Saxy25
 - 👀 I’m interested in creating new designs
 - 🌱 I’m currently learning backend development with techcrush 
-- 💞️ I’m looking to collaborate on Tech companies 
-- 📫 How to reach me... you can reach me via email 
+- 💞️ I’m looking to collaborate with both Tech companies and companies in need of graphics desiner
+- 📫 How to reach me... you can reach me via email (ezekielchinaza57@gmail.com)
 - 😄 Pronouns: ... She
 - ⚡ Fun fact: ... going out with colleagues 
 
